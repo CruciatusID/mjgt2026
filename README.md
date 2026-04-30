@@ -5,7 +5,8 @@ Repositori ini berisi dokumen naskah MJ GT untuk bulan Mei 2026 dalam format Mar
 ## Struktur Repositori
 
 - `2026-05/` berisi naskah per tanggal/minggu.
-- `mj gt mei 2026.pdf` merupakan berkas referensi lokal dan diabaikan oleh git melalui `.gitignore`.
+- `MJ GT Mei 2026.pdf` merupakan berkas referensi lokal dan diabaikan oleh git melalui `.gitignore`.
+- Kode pada daftar bacaan mengikuti PDF sumber; `BU` menandai bacaan utama.
 
 ## Konvensi Penamaan
 
@@ -34,3 +35,13 @@ Setiap dokumen umumnya memuat bagian berikut:
 - Buka berkas Markdown sesuai tanggal atau tema yang diperlukan.
 - Gunakan PDF sebagai pembanding apabila diperlukan.
 - Saat menambah naskah baru, ikuti pola penamaan yang sama agar konsisten dan mudah ditelusuri.
+
+## Format Kerja
+
+Untuk penyesuaian dari PDF ke Markdown, gunakan acuan berikut:
+
+- PDF tetap menjadi sumber utama.
+- `BU` menandai bacaan utama.
+- Label lain seperti `PA` tetap dipertahankan jika ada di PDF sumber.
+- Struktur isi mengikuti pola: `## Tema`, `## Bacaan`, `## Tujuan`, `## Pemahaman Teks`, `## Korelasi`, `## Pokok-Pokok Pengembangan Khotbah`.
+- Koreksi hanya dilakukan pada bagian yang jelas berbeda dari PDF, terutama typo OCR yang tampak nyata.
