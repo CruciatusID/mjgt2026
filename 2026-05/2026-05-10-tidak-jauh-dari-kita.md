@@ -1,7 +1,7 @@
 # Bahan Minggu Paskah VI, 10 Mei 2026
 
 ## Tema
-Tidak Jauh Dari Kita
+Ia Tidak Jauh Dari Kita
 Tae anna mambela Dio Mai Kaleta
 
 ## Bacaan
