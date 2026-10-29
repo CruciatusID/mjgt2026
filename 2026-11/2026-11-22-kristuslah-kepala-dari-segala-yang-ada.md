@@ -1,0 +1,33 @@
+# Bahan Khotbah Minggu, 22 November 2026
+
+## Tema
+Kristuslah Kepala dari Segala yang Ada
+Kristu’mo tu Pangngulunna mintu’ Angge Maritik
+
+## Bacaan
+- Mazmur : Mazmur 100
+- Bacaan 1 : Yehezkiel 34:11-16, 20-24
+- Bacaan 2 : Efesus 1:15-23 (BU)
+- Bacaan 3 : Matius 25:31-46
+- Nas Persembahan : Mazmur 100:1
+- Petunjuk Hidup Baru : Mazmur 100:3
+
+## Tujuan
+1. Jemaat termotivasi bertumbuh makin mengenal Kristus secara benar.
+2. Jemaat menyaksikan pengenalannya akan Kristus dalam kehidupan nyata sehari-hari.
+
+## Pemahaman Teks
+**Mazmur 100.** Mazmur ini diawali dengan ajakan kepada seluruh semesta untuk mengagungkan atau memuji Tuhan (ay. 1-2). Pengagungan Tuhan melalui puji-pujian cukup beralasan karena Dialah Sang pencipta semesta dan manusia. Dia tidak hanya mencipta melainkan senantiasa menyelenggarakan semesta dengan segala isinya termasuk menggembalakan umat-Nya seperti domba (ay. 3). Sebab Ia baik dan kesetiaan-Nya tak berkesudahan melainkan tetap sampai selama-lamanya (ay. 5). Jadi, sangat beralasan jika pemazmur mengajak umat Allah memasuki pintu gerbang-Nya dan pelataran-Nya menaikkan puji-pujian dan syukur kepada-Nya (ay. 4). Dengan demikian, sebagai umat Allah atau domba gembalaan-Nya kita seyogianya senantiasa menghampiri hadirat-Nya untuk memuliakan Dia atas segala penyelenggaraan kasih dan setia-Nya bagi kita dan seluruh ciptaan lainnya.
+
+**Yehezkiel 34:11-16, 20-24.** Kitab Yehezkiel pada pasal 34 ini menggambarkan umat Israel seperti kawanan domba dan para pemimpinnya dengan sebutan gembala. Pada teks sebelumnya (ay. 1-10) diuraikan bagaimana para pemimpin mereka memperoleh banyak keuntungan dari domba atau umat tanpa memeliharanya dengan maksimal. Para gembala mengabaikan domba-dombanya terutama domba yang lemah, sakit, luka, sesat dan yang hilang tidak diurus dengan baik. Akibatnya, domba-domba gembalaannya terserak ke mana-mana. Situasi domba yang terabaikan ini menyebabkan Tuhan sendiri turun tangan menggembalakan dan mencari domba-domba-Nya di mana pun mereka terserak, lalu mengumpulkan mereka kembali ke tanah Israel (ay. 13-15). Dengan demikian, Allah sendiri yang akan bertindak menggantikan posisi para pemimpin untuk memulihkan kondisi Israel yang terabaikan dengan jalan menggembalakannya sesuai dengan yang sepatutnya (ay. 16). Selain itu, Ia sendiri yang akan bertindak menengahi perlakuan yang tidak patut yang terjadi di antara para domba. Tuhan sendiri yang akan bertindak menjadi hakim di antara domba-domba yang memperlakukan rekannya dengan sewenang-wenang (ay. 20-22). Selanjutnya, Tuhan sendiri berjanji mengangkat seorang gembala sama seperti raja Daud yang akan menggembalakan domba-domba-Nya (ay. 23-24). Di sini jelas bahwa Allah sendiri yang akan menjadi gembala yang baik bagi umat-Nya yang terabaikan oleh para pemimpin mereka. Dialah yang akan menggembalakan dan memulihkan keberadaan umat-Nya sebagaimana mestinya. Itulah sebabnya model kepemimpinan gembala yang sejati sebagaimana dinyatakan oleh Allah di sini semestinya menjadi role model bagi siapapun yang mengingini menjadi pemimpin umat maupun masyarakat luas.
+
+**Efesus 1:15-23.** Perikop ini menguraikan rasa syukur yang mendalam rasul Paulus setelah mendengar berita yang menggembirakan mengenai iman dan kasih warga jemaat di Efesus terhadap semua orang kudus (ay. 15). Karena itu, ia dengan tidak henti-hentinya berdoa bagi mereka agar Allah berkenan mengaruniakan Roh hikmat dan wahyu untuk mengenal Allah dengan benar (ay. 17). Pengenalan akan Allah secara benar akan menolong mereka makin mengerti esensi dari pengharapan apa yang terkandung di balik panggilan mereka sebagai orang percaya. Pengharapan itu mengandung sebuah janji bahwa dengan percaya kepada Kristus, maka mereka akan beroleh Roh Kudus. Roh Kuduslah yang akan menjadi jaminan warisan bagi mereka sampai memperoleh penebusan yang menjadikan mereka milik Allah, untuk memuji kemuliaan-Nya (ay. 18, bnd. ay. 14). Dengan mata hati mereka yang sudah diterangi oleh Roh Kudus tersebut akan memampukan mereka melihat warisan Allah yang jauh lebih mulia dan kaya yakni dengan membangkitkan Kristus dari antara orang mati dan menempatkan Kristus di atas segala penguasa di bumi dan di sorga (ay. 20-22). Pengharapan itu bukan hanya berkaitan dengan dunia masa kini melainkan juga sangat terkait dengan dunia yang akan datang (ay. 21). Pengharapan itu juga menjadikan jemaat sebagai tubuh-Nya berada dalam situasi aman dari berbagai kuasa yang mengancam mereka (ay. 23). Dengan demikian, karunia Roh Kudus yang dianugerahkan oleh Allah kepada kita orang percaya akan memampukan kita melihat secara terang akan karya Allah di dalam Kristus yang telah bangkit dan menjadi penguasa segala sesuatu. Pengenalan akan Kristus ini juga akan memampukan kita untuk berkarya dengan baik dan benar di dunia ini (lih. 2:10).
+
+## Pokok-Pokok Pengembangan Khotbah
+1. Khotbah dapat dimulai dari peran kepala (penghulu), di mana itu sangat menentukan dalam realita hidup ini. Arah dan patokan selalu terkait atau dikaitkan dengan kepala. Dalam pemahaman, kesadaran dan keadaan itulah yang dapat diyakini sebagai latar belakang munculnya kata kepala di teks kita.
+
+2. Rasul Paulus sungguh mengakui dan mengimani bahwa oleh kasih karunia Allah, Roh Kudus memampukan orang percaya mengenal secara benar siapa Kristus itu: Dia yang telah bangkit dan menjadi penguasa/penghulu atas segala sesuatu.
+
+3. Keberadaan demikian berpesan kuat kepada kita bahwa Dia yang kita sembah yang oleh-Nya kita diselamatkan tidak ada bandingannya. Dia adalah kepala maka sumber petunjuk dan ketetapan hendaknya dari Dia. Menjadi pegangan bagi kita semua yang percaya pada-Nya. Hidup kita terarah dan tunduk pada Dia. Kita menengadah hanya pada-Nya. Hubungan atau relasi selalu terbangun rapi dan harmonis antara kepala dengan anggota tubuh. Masalah inilah yang terungkap dalam Yehezkiel 34 apabila kita mencermatinya. Pemimpin Israel yang semestinya menjadi gembala, justru tidak memerankan itu dengan baik. Bahkan justru sebaliknya yang mereka tunjukkan. Pemimpin itu tidak tunduk pada Allah akibatnya sikap mereka tidak mencerminkan apa kehendak Dia yang mempercayakan tanggung jawab itu. Akhirnya Allah berjanji mengangkat seorang gembala bagi umat-Nya dan Dia pun akan menjadi hakim di antara umat-Nya.
+
+4. Gereja atau umat-Nya dituntut untuk menunaikan peran penggembalaan. Pemimpin/Gembala setia menuntun umat untuk terus memuliakan atau mengagungkan Allah. Tetap menyadari keberadaan Dia sebagai Kepala. Gembala-pemelihara umat dengan sukacita menyongsong kedatangan Kristus yang juga adalah hari penghakiman, bukan diliputi rasa takut dan kegentaran.
